@@ -1,4 +1,4 @@
-We mast learn
+We must learn
 
 Not available!
 
